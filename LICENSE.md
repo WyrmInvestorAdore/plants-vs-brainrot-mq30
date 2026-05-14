@@ -1,4 +1,4 @@
-#  
+#  new plants vs brainrots Scripts is the best plants vs brainrots Script, featuring no clip and aimbot. Safe and powerful for all your needs.
 
 
 
